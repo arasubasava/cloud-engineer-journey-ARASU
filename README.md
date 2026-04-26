@@ -51,3 +51,9 @@ CSE Student from Karnataka → becoming a Cloud Engineer in Bangalore
 ---
 
 🎯 Goal: Cloud Engineering job in Bangalore by 2026
+
+
+4 YEARS FROM NOW 
+I WILL LAUGH IF I DIDN'T MAKE IT I WILL SMILE IF I MAKE IT :)
+I WILL CRY IF I DIDN'T TRY (DIDN'T TRY)
+
